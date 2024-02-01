@@ -5,6 +5,13 @@
 
 Here are some ideas to get you started:
 
+
+Hola Genio!!. Gracias por tu tiempo.
+Excelente curso.
+Saludos desde Argentina. 
+
+
+
 - 🔭 I’m currently working on ...
 - 🌱 I’m currently learning ...
 - 👯 I’m looking to collaborate on ...
